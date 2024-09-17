@@ -1,4 +1,4 @@
-# [Hayden]
+# [Hayden Bybee]
 ## [Lab 2]
 ## [Submission date: 09/16/24]
 ## Worked with/sources 
